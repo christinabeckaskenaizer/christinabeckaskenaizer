@@ -1,6 +1,7 @@
 
-![banner (6)](https://github.com/christinabeckaskenaizer/christinabeckaskenaizer/assets/110789198/27fa2cf7-e701-4c49-b5b3-43fdce5e8d0f)
+![to the team](https://github.com/christinabeckaskenaizer/christinabeckaskenaizer/assets/110789198/c9ae6dc0-3339-4f7e-9ad6-1b5bc20140f5)
 
+### Hi, there! 👋
 - 💻 I’m currently working on a Spotify Playlist Creator using React!
 - 📫 How to reach me: C.BeckAsk@gmail.com
 - 😄 Pronouns: She/Her
