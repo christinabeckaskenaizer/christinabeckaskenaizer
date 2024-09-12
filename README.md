@@ -1,4 +1,6 @@
-![Header](![Christina Beck-Askenaizer (3)](https://github.com/user-attachments/assets/f60bed03-376f-4665-b9c4-1591ae4dfa44)
+🙋🏻‍♀️ Introducing Myself
+
+(![Christina Beck-Askenaizer (3)](![Christina Beck-Askenaizer (4)](https://github.com/user-attachments/assets/98b3f629-dc80-4fd4-9c3d-395329a5a8d0)
 )
 
 
