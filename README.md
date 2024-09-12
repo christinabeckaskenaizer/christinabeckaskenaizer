@@ -1,6 +1,7 @@
 🙋🏻‍♀️ Introducing Myself
 
-(![Christina Beck-Askenaizer (3)](![Christina Beck-Askenaizer (4)](https://github.com/user-attachments/assets/98b3f629-dc80-4fd4-9c3d-395329a5a8d0)
+(![Christina Beck-Askenaizer (3)](![Christina Beck-Askenaizer (4)](![header-pic](https://github.com/user-attachments/assets/b3cd03ed-7d37-440b-afb8-89e6ec5734c3)
+)
 )
 
 
