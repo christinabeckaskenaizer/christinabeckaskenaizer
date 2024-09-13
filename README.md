@@ -1,6 +1,6 @@
 ### 🙋🏻‍♀️ Introducing Myself
 
-- - -
+---
 
 ![Christina Beck-Askenaizer (5)](https://github.com/user-attachments/assets/38b0d433-bc8a-4f75-8a1d-ca4ba0c142a4)
 
